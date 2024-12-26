@@ -12,6 +12,7 @@ My favorite place to vacation is Hawaii.
 ![image](https://github.com/user-attachments/assets/4cef522c-6b9b-42c8-ace8-4bea27ca268f)
 
 My favorite movie is Coraline.
+
 ![image](https://github.com/user-attachments/assets/5c26f466-bb0d-4a29-ab05-ff2b3eabcec3)
 
 When I grow up I'd like to teach art.
